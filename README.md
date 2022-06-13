@@ -26,4 +26,4 @@ Der Verein verfolgt ausschließlich und unmittelbar gemeinnützige Zwecke im Sin
 
 Das hehre Ziel treibt uns an. Sie wollen uns unterstützen? Dann werden Sie Mitglied und/oder fördern unser Vorhaben mit einer Spende.
 
-Sie finden uns hier: [www.digitale-sicherheit.org(https://www.digitale-sicherheit.org/)
+Sie finden uns hier: [www.digitale-sicherheit.org](https://www.digitale-sicherheit.org/)
